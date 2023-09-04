@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @nftloverrman
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning coding!
-- 📫 How to reach me :@nftloverrman
+- 📫 How to reach me :@nftloverrman in twitter
 - looking forward better world
 - and also privacy
 
